@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amrittiwanna
+- 👀 I’m interested in epidemiology and biostatistics
+- 🌱 I’m currently learning Health Sciences at Simon Fraser University
+- 💞️ I’m looking to collaborate on new projects
+- 📫 How to reach me: amrit_tiwana@sfu.ca or https://www.linkedin.com/in/amrit-tiwana
